@@ -1,0 +1,1 @@
+# ayato-shimada.github.io
